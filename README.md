@@ -7,3 +7,8 @@ Places I wish to visit
 My Spotify Playlist :^
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/3bzEA2WzAmLYS1M9jb53UN?utm_source=generator&theme=0" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe> 
+
+Social Media 
+
+ Instagram - https://www.instagram.com/ck.eahs00/
+ Facebook - https://www.facebook.com/cheskahicheska
