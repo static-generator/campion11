@@ -14,7 +14,7 @@ Social Media
 
 [Instagram](https://www.instagram.com/ck.eahs00/)
 
-[title]((https://www.facebook.com/cheskahicheska))
+[Facebook](https://www.facebook.com/cheskahicheska)
 
 *I Love Cats*
 
