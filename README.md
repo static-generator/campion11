@@ -12,9 +12,9 @@ My Spotify Playlist :^
 
 Social Media 
 
- Instagram - https://www.instagram.com/ck.eahs00/
- 
- Facebook - https://www.facebook.com/cheskahicheska
+[Instagram](https://www.instagram.com/ck.eahs00/)
+
+[title]((https://www.facebook.com/cheskahicheska))
 
 *I Love Cats*
 
