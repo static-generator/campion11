@@ -25,6 +25,8 @@ Social Media !!
 
 ![oooooo](https://mandolinluthier.com/images/philippine_banduria2.webp) 
 
+- pic from google :}
+
 
  
 
