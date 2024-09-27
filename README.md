@@ -1,6 +1,6 @@
-Campion11
+**CAMPION 11**
 
-**Places I wish to vist ^v^**
+**Places I wish to visit ^v^**
 
 1. Milan, Italy
 2. Barcelona, Spain
@@ -20,6 +20,11 @@ Social Media !!
 *I Love Cats*
 
 ![image](https://github.com/user-attachments/assets/fb8781e2-220f-47ff-bc85-619581a13a7c)
+
+*My favorite instrument!!!*
+
+![oooooo](https://mandolinluthier.com/images/philippine_banduria2.webp) 
+
 
  
 
