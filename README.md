@@ -21,8 +21,6 @@ Social Media !!
 
 ![image](https://github.com/user-attachments/assets/fb8781e2-220f-47ff-bc85-619581a13a7c)
 
-![image](https://github.com/user-attachments/assets/bac5cc4d-6c76-4c4e-83ad-fb5dedcb71c6) 
-
-
+ 
 
 
