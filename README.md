@@ -1,6 +1,6 @@
 Campion11
 
-Places I wish to visit
+**Places I wish to vist ^v^**
 
 1. Milan, Italy
 2. Barcelona, Spain
@@ -13,13 +13,16 @@ My Spotify Playlist :^
 
 Social Media !!
 
-[Instagram](https://www.instagram.com/ck.eahs00/)
+[Instagram](https://www.instagram.com/ck.eahs00/) - ck.eahs00
 
-[Facebook](https://www.facebook.com/cheskahicheska)
+[Facebook](https://www.facebook.com/cheskahicheska) - mae cheska
 
 *I Love Cats*
 
 ![image](https://github.com/user-attachments/assets/fb8781e2-220f-47ff-bc85-619581a13a7c)
 
-![image](https://github.com/user-attachments/assets/bac5cc4d-6c76-4c4e-83ad-fb5dedcb71c6)
+![image](https://github.com/user-attachments/assets/bac5cc4d-6c76-4c4e-83ad-fb5dedcb71c6) 
+
+
+
 
